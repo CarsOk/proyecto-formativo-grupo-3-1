@@ -24,7 +24,7 @@ ___
 ㅤㅤ
 ##### **DURACION ETAPA PRODUCTIVA**: 6 MESES
 ㅤㅤ
-##### **REFERENCIAS PERSONALES Juan Cova  TI:1043437551**
+##### **REFERENCIAS PERSONALES**
 ___
 
 ###### Nathalie Cervantes  TI 1048065478____________
