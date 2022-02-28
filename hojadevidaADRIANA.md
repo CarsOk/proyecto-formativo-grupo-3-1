@@ -1,4 +1,5 @@
  # HOJA DE VIDA 
+ ------
 
 ### DATOS PERSONALES 
 --------------
